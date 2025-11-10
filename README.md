@@ -1,1 +1,1 @@
-# FitMantra_
+# FitMantra
